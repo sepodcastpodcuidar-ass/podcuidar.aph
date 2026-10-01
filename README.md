@@ -1,0 +1,1 @@
+# podcuidar.aph
